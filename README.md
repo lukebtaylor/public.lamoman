@@ -36,7 +36,7 @@
   - 30 Ramey Street Collinsville, IL 62234
 
 - [Henry Lay Sculpture Grounds](https://www.slu.edu/lay-center/index.php)
-  - State Hwy UU, Louisiana, MO 63353
+  - 17533 State Highway UU, Louisiana, MO 63353
   - 304 Georgia St, Louisiana, MO 63353
   - [Map](lay-center-map.pdf)
   - [Brochure](lay-center-brochure.pdf)
